@@ -1,1 +1,1 @@
-# .githubshadivakhandemahdmap@gmail.com 
+# .githubshadivakhandemahdmap
